@@ -14,6 +14,15 @@
 
 **Kelas : 2A Sistem Informasi**
 
+Kelompok:
+Afanda Azarya (6725600005)
+
+
+Muhammad Yasyfa'u Izzan (6725600015)
+
+
+Firly Zalfa Mahayuning Utomo (6725600013)
+
 </div>
 
 ---
